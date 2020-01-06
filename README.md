@@ -1,2 +1,0 @@
-# newbotfree
-N
